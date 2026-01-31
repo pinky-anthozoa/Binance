@@ -13,11 +13,11 @@
 * **完成任务即可获得 190 FOGO 代币券**
 * **完成任务即可获得 50 至 150 ZKP 代币券**
 
-![币安优惠头图](your-image-filename.jpg)
+![输入币安推荐邀请码【2026VIP】：折 30% 手续费 + 600U 开户赠金](your-image-filename.jpg)](https://github.com/user-attachments/assets/c0982935-fdba-4217-8270-ac0b59aefb1e)
 
 ---
 
-## 01 输入币安推荐邀请码【2026VIP】：折 20% 手续费 + 600U 开户赠金
+## 01 输入币安推荐邀请码【2026VIP】：折 30% 手续费 + 600U 开户赠金
 
 经验老道的 Trader 都知道，手续费是交易成本的一大关键。透过推荐码【 2026VIP 】申请币安，你可以直接获得 30% 交易手续费的折扣。
 
@@ -73,7 +73,7 @@
 3.  **设定密码**：设定 8 位数密码。
 4.  **确认绑定**：确认系统显示「您享受的返佣比例： 20 ％」或手动输入【 2026VIP 】。
 
-![注册界面示意图](register-step-image.jpg)
+![输入币安推荐邀请码【2026VIP】：折 30% 手续费 + 600U 开户赠金](your-image-filename.jpg)](https://github.com/user-attachments/assets/c0982935-fdba-4217-8270-ac0b59aefb1e)
 
 ---
 
