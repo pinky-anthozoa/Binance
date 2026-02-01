@@ -13,7 +13,7 @@
 * **完成任务即可获得 190 FOGO 代币券**
 * **完成任务即可获得 50 至 150 ZKP 代币券**
 
-[![输入币安推荐邀请码【2026VIP】：折 30% 手续费 + 600U 开户赠金](https://github.com/user-attachments/assets/c0982935-fdba-4217-8270-ac0b59aefb1e)]
+![输入币安推荐邀请码【2026VIP】：折 30% 手续费 + 600U 开户赠金](https://github.com/user-attachments/assets/c0982935-fdba-4217-8270-ac0b59aefb1e)
 
 ---
 
@@ -73,7 +73,7 @@
 3.  **设定密码**：设定 8 位数密码。
 4.  **确认绑定**：确认系统显示「您享受的返佣比例： 20 ％」或手动输入【 2026VIP 】。
 
-[![输入币安推荐邀请码【2026VIP】：折 30% 手续费 + 600U 开户赠金](https://github.com/user-attachments/assets/c0982935-fdba-4217-8270-ac0b59aefb1e)]
+![输入币安推荐邀请码【2026VIP】：折 30% 手续费 + 600U 开户赠金](https://github.com/user-attachments/assets/c0982935-fdba-4217-8270-ac0b59aefb1e)
 
 ---
 
