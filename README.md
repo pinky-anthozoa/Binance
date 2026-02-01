@@ -1,3 +1,4 @@
+简体中文 | [繁體中文](./README_TW.md) | [English](./README_EN.md)
 # 2026 最新｜输入币安推荐邀请码【2026VIP】折 30% 手续费 + 6 大优惠
 
 **作者**：BINANCE 币安队长  
